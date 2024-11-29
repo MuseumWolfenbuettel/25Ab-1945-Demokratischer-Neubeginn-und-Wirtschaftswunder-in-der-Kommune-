@@ -1,0 +1,1 @@
+# 25Ab-1945-Demokratischer-Neubeginn-und-Wirtschaftswunder-in-der-Kommune-
